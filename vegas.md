@@ -52,7 +52,7 @@ But the real draw for me is the cactus garden outside. That ethel lady, boy howd
 
 I recommend staying as far away from the strip as you possibly can, but I still fancy myself a local that way. If you must do the strip...
 
-A quick tip: remember that the valets at casinos are, strictly speaking, free. In my opinion, it's worth it to tip the valets a couple discretionary dollars every time you park to have the experience of entering the casino through the front door. The walk from the parking structures is often very long, and the things about the casino that you actually want to see are usually in the front lobby anyway. Plus some of the valets are HOTTIES! and, bonus: no keeping keys in pockets!
+Most properties now charge for parking. Want to bypass that? Planet Hollywood is your best option.
 
 ### The Roller Coaster at NYNY
 This is THE one to do, and in my opinion is NOT to be missed if you like roller coasters. I like arriving early, getting the all-day pass (last I recall, it was $14 for 1 ride, $7 for subsequent rides, or $25 for an all day pass- an easy sell, for me), riding until either the line packs up with a bunch of people or until I feel like I may vomit if I ride one more time (2.75 consecutive hours is my personal best).. then go for a walk, come back later, and repeat. I have this as yet unrealized fantasy of dressing up in ridiculous costumes, riding in the front car, and getting souvenir shots.

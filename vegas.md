@@ -76,8 +76,8 @@ One thing to pay attention to as you visit casinos, especially strip casinos: ea
 The tourist-targeted things- like the shark aquarium at Mandalay- tend to be disappointing, especially for the cost. If you want to see fish, there's a coral reef tank at the Silverton- it's beautiful, and it's free! And while you're there, if you wanna do it for the experience of saying you've done it once, the Silverton has one of the best buffets for my money and mouth, especially the brunch buffet.
 
 ### Rare Car Collection
-http://www.autocollections.com/
-I never actually saw it, but was always told that the rare car collection at the Imperial Palace is cool (er, apparently the Imperial Palace has been reimagined as "The Quad"- always changing, Las Vegas is!). They have the Lincoln in which the Kennedys were riding when the President was assassinated, among other things. Oh, and according to the website you can get free admission if you print out a coupon online.
+http://www.blackhawkcollection.com/
+I never actually saw it, but was always told that the rare car collection at the Imperial Palace is cool (er, apparently the Imperial Palace has been reimagined as "The Quad" -- make that "The Linq" -- REALLY always changing, Las Vegas is!). They have the Lincoln in which the Kennedys were riding when the President was assassinated, among other things. But, according to the website, the collection has moved and is now available for view "any given day, 'by appointment only.'"
 
 ### Pool at the Golden Nugget
 If the weather is warm enough for it, I think you can get day passes for the pool at the Golden Nugget, which has the unique bonus of a water slide through their shark tank. Should be loads of fun for the kids, weather permitting.
